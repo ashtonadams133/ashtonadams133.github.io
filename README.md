@@ -1,2 +1,1 @@
-# ashtonadams133.github.io
-Boom
+Hello This is Ashton Adams Ykie se website.
